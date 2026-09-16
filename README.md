@@ -2,7 +2,7 @@
 
 Aspiring Finance and Business Administration Student
 
----
+* For Resume, click [here](
 
 ### 🎓 About Me
 
