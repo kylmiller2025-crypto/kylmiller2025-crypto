@@ -2,7 +2,8 @@
 
 Aspiring Finance and Business Administration Student
 
-* For Resume, click [here](
+* For Resume, click [here](https://docs.google.com/document/d/10UxL_TpdOlJKh7tGe37Z3eJrhXSW41DxJWeeQBiWqko/edit?tab=t.0#heading=h.5x0d5h95i329)
+
 
 ### 🎓 About Me
 
